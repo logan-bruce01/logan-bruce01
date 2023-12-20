@@ -6,4 +6,4 @@ From my previous employment, I bring with me a various set of skills which inclu
 
 When I'm not immersed in the Tech space, I love to spend my free time riding my motorcycle and if you ask about it I will chat your ear off about it also and if I'm not on my bike it is either because I'm fixing it or I'm on the slopes if its good weather otherwise you will find me outside with my dog or inside with my dog binge watching the same tv show for the 10th time
 
-My favorite projects⬇️
+My favorite projects below⬇️
